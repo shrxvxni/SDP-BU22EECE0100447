@@ -2,7 +2,7 @@ SHRAVANI A
 
 LinkedIn - https://[www.linkedin.com/in/shravani-a-6a623b2ba/](http://www.linkedin.com/in/shravani-a-6a623b2ba/) GitHub - <https://github.com/shrxvxni> E-mail - [shravania.647@gmail.com](mailto:shravania.647@gmail.com) phone on - +91-8147004492
 
-Address - Koramangala avathi (post) Bangalore (rural district) 562164
+Address - Koramangala avathi (post) Bangalore (rural district) 562110
 
 # CAREER OBJECTIVE
 
@@ -10,7 +10,7 @@ Aspiring to utilize my academic background and passion for \[Electronics and com
 
 # EDUCATION QUALIFICATION
 
-Pragathi High School, Vijayapura SSLC/10th 2018 - 2019 percentage - 86.26% Pragathi Girls PU College, Vijayapura PUC/12th 2019 - 2021 Percentage - 79% GITAM University, Bengaluru Branch - ECE 2022 - 2026 CGPA - 6.84%
+Pragathi High School, Vijayapura SSLC/10th 2018 - 2019 percentage - 86.26% Pragathi Girls PU College, Vijayapura PUC/12th 2019 - 2021 Percentage - 79% GITAM University, Bengaluru Branch - ECE 2022 - 2026 CGPA - 7.08%
 
 # SKILLS
 
