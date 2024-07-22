@@ -2,7 +2,7 @@ SHRAVANI A
 
 LinkedIn - https://[www.linkedin.com/in/shravani-a-6a623b2ba/](http://www.linkedin.com/in/shravani-a-6a623b2ba/) GitHub - <https://github.com/shrxvxni> E-mail - [shravania.647@gmail.com](mailto:shravania.647@gmail.com) phone on - +91-8147004492
 
-Address - Koramangala avathi (post) Bangalore (rural district) 562110
+Address - Koramangala avathi (post) Bangalore (rural district) 562164
 
 # CAREER OBJECTIVE
 
